@@ -1,4 +1,4 @@
-# नमस्ते 🙏 I'm Rohit Raj
+#  I'm Rohit Raj
 
 🚀 Aspiring Cybersecurity Professional  
 💻 Currently learning:  
